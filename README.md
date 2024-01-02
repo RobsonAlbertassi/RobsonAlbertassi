@@ -19,7 +19,7 @@ Cientista de Dados fascinado por matemática principalmente nas áreas de estat�
 
 
 #### Algumas publicações:
-
+wip
           
           
           
